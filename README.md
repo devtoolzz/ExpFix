@@ -1,2 +1,7 @@
 # ExpFix
-Fix's Codex, Fluxus, Wave
+ Fix's Codex, Fluxus, Wave, Nezur, RDX In 15 Minutes
+# BAIT INCLUDE
+- NTS SYNTAX PATCH'S
+- NMNN ROBLOX ENCHANCER POWERED BY NICO
+- 
+
